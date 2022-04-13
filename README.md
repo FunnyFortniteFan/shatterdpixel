@@ -1,5 +1,5 @@
 - 👋 Hi, I’m shatterdpixel
-- 👀 I’m interested in learning how to develop.
+- 👀 I’m interested in learning how to develop vidya games.
 - 🌱 I’m currently learning Nothing, I already know everything.
 - 💞️ I’m looking to collaborate on Nothing, I have already taken the idea from your head, and I've already started work
 - 📫 How to reach me shatterdpixel#6342, discord.
